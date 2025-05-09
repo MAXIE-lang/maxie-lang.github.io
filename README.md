@@ -1,1 +1,1 @@
-# maxie-lang.github.io
+# maxiestudio.com
